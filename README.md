@@ -1,7 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=ruffledram&color=251473)
 
-I've moved on and found better people, dont ever give up <3
-
 read [Rentry](https://rentry.co/dr3am1and)  and [Guns.Lol](https://guns.lol/rabidruffy) for more about me ! :3
 
 
